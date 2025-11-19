@@ -1,0 +1,1 @@
+barbare du nord co-tenancière du l'auberge du Poisson qui fume (humaine crane rasé sur le côté tatouage tribal éclair pour recouvrir une cicatrice du côté du crane. Elle a été poussé du nord par sa tribut

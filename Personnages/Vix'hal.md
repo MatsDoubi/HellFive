@@ -1,0 +1,1 @@
+Vix'hal demi-orc co-tenancière de l'auberge du poisson qui fume, ancienne aventurière qui a accroché sa hache derrière le comptoir. Elle a racheté le fond de commerce au précédent tenancier.
