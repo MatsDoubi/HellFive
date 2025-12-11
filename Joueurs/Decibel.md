@@ -1,13 +1,12 @@
 
 ![[Decibel.png | 150]]
 ## Famille:
-a compléter
-
+* dans la misère apparement
 ## Relations & Problèmes connus:
-a compléter
-
+* cleptomane
+* mythomane
 ## Compétences et Atouts
-a compléter
-
+* cleptomane
+* mythomane
 ## Campfire Stories
 * très fort au jeu et pas mal au bluff, mais le problème c'est qu'il joue beaucoup et cela peut le mettre parfois en difficulté.

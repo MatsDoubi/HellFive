@@ -1,13 +1,11 @@
 
 ![[Harmonie.jpeg | 300]]
 ## Famille:
-a compléter
-
+* trop riche
 ## Relations & Problèmes connus:
-a compléter
-
+* imbue d'elle même
+* pédante
 ## Compétences et Atouts
-a compléter
-
+* Ses seins rentrent dans une pièce plusieurs minutes avant elle
 ## Campfire Stories
 * elle n'admet jamais avoir tort mais note dans un carnet toutes les fois ou elle a tort pour ne jamais se répéter
