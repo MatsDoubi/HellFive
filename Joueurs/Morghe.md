@@ -19,7 +19,6 @@ a compléter
 
 * Je ne résiste pas aux fraises au sucres et parfois cela me joue des tours
 
-
 ## Possession
 * 3 morceaux de tissus d'adversaire vaincu
 * une petite caissette en bois contenant une lettre de Valérius Pompafric.
