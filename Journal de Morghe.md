@@ -7,12 +7,13 @@ Caution Moral                : Elfin
 Gros bras                         : Morghe
 Analyste/cartographe : Morghe
 ### Compagnons
-* [[Decibel]]
-* [[Elfin]]
-* [[Harmonie]]
+* [[Decibel Bach Wolgang Pastorius de Parcello III]]
+* [[Elfin Delasemana]]
+* [[Harmonie de Clair-Magnan]]
 * [[Morghe]]
 # Sessions
-* [[4 - 11.12.2025 -Les richous inaptes à la survie dans le monde réel]]
+* [[5 - 18.12.2025 - Les richous se sont bien débrouillés]]
+* [[4 - 11.12.2025 - Les richous inaptes à la survie dans le monde réel]]
 * [[3 - 27.11.2025 - En route pour le bar]]
 * [[2.5 - 20.11.2025 - En route pour le bar faux départ]]
 * [[2 - 13.11.2025 - J'apprend a materner des richous]]
